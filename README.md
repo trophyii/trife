@@ -1,6 +1,7 @@
 **hyperfixation(s)**
 - tornadoes
 - inanimate insanity
+- dandy's world
 - final destination (1-6)
 - spongebob squarepants
 
@@ -20,7 +21,6 @@
 - disney/nickelodeon shows
 
 **interested but not fandom wise**
-- dandy's world
 - forsaken
 - pretty blood
 
